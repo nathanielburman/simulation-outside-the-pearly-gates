@@ -60,4 +60,9 @@ a
 a
 a
 
+DO NOT READ THE LAST PART YET. WAIT.
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
 You are only a merchant. You have no business with the whores.
